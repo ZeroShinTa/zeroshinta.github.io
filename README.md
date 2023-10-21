@@ -1,1 +1,0 @@
-# zeroshinta.github.io
